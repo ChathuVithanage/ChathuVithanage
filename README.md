@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Java,Html**
 
-- 📫 How to reach me **chathuriimasha@gmail.com**
+- 📫 How to reach me **chathuriimasha60@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
